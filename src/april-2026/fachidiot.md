@@ -1,4 +1,4 @@
-# Fachidiot.md
+# Fachidiot
 
 _Fachidiot is a derogatory German term for an expert who is highly skilled in their specific field but completely ignorant, oblivious, or lacking in common sense outside their narrow specialty. It describes someone with a "blinkered" view of multi-faceted problems who cannot see the bigger picture._
 
@@ -32,4 +32,4 @@ Later in the interview room, he asked the officer if he could ask a question. Th
 The officer looked at him and simply replied. 
 “You told all three shops that tomorrow was going to be a firework display”, he said with a grin on his face.  “And you paid for all the components on your personal credit card; AND paid for the room on the same credit card. It didn’t take long to realise what you were planning.”
 
-Dismayed, Dave placed his head on the table in front of him. He had tried to be normal, he had tried to live a normal life, and failed. He was however happy he was going to get three square meals a day. At least he didn’t have to worry about that any more.  
+Dismayed, Dave placed his head on the table in front of him. He had tried to be normal, he had tried to live a normal life, and failed. He was however happy he was going to get three square meals a day. At least he didn’t have to worry about that any more.
