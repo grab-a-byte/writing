@@ -1,6 +1,4 @@
-# Summary
-
-[Welcome](./welcome.md)
+# Welcome
 
 - [Writing course April 2026](./writing-course.md)
   - [Fachidiot](./april-2026/fachidiot.md)
