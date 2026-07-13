@@ -11,3 +11,4 @@ I found a local writing group / course that I decided to join to see how my writ
 - [Nostaligia](./april-2026/nostalgia.md)
 - [Idiot Plot](./april-2026/idiot-plot.md)
 - [Something uncanny](./april-2026/something-uncanny.md)
+- [Historical figure in a modern world](./historical-person.md)
