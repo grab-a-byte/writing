@@ -1,6 +1,6 @@
 # Historical person brought into our time
 
-**This was a fun one to do. As the title implies, it's regarding a historical person brought into the modern age. I chose to not go full modern as I wanted to display the kinship between two female rulers and so set it back when Great Brittain had a Queen instead of a king**
+_This was a fun one to do. As the title implies, it's regarding a historical person brought into the modern age. I chose to not go full modern as I wanted to display the kinship between two female rulers and so set it back when Great Brittain had a Queen instead of a king_
 
 ---
 
