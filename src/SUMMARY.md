@@ -13,13 +13,16 @@
   - [Something uncanny](./april-2026/something-uncanny.md)
   - [Historical figure in a modern world](./april-2026/historical-person.md)
 
+- [Writing course September 2026](./september-2026/overview.md)
+  - [Unsung Heroes](./september-2026/unsung-heroes.md)
+
 All of these are in the format of
 
 ```
 Generic Title and optional Date
 _Italicised description of prompt and some general thoughts_
 Divider
-Story title
+Optional Story title
 Story
 Optional Divider
 Optional clarification of story viewpoint

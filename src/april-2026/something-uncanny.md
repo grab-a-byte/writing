@@ -3,6 +3,7 @@
 _This one may make not that much sense reading as I wrote it to feel uncanny to the people in the writing class. It worked on the day and people enjoyed it so please bear that in mind when reading_
 
 ---
+## The Bookstore That Knows Too Much
 
 It was the first week of something new. I remember walking into a bookstore with a sign on the door saying “Closed” that felt surreal, like I shouldn’t have been there. It was week one of my newfound writing course and I had no idea what was going on or what I was walking into; luckily I walked into a friendly cast of characters who welcomed me with smiles on their faces. Down the stairs we went into what looked like the dungeon of this charity bookshop and into a room with enough chairs for us. We sat and discussed the first prompt for the course - ‘Words we don’t have in English’. The discussion was promising and cheery and time flew before we were tasked to go home and write our stories.
  

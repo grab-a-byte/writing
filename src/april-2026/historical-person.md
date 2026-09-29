@@ -3,6 +3,7 @@
 _This was a fun one to do. As the title implies, it's regarding a historical person brought into the modern age. I chose to not go full modern as I wanted to display the kinship between two female rulers and so set it back when Great Brittain had a Queen instead of a king._
 
 ---
+## The Unworthy Metropolis: A Cleopatra Chronicle
 
 The year was 2012, the whole country was out celebrating Queen Elizabeth the 2nd’s 60th year. Cleopatra had found herself looking at gleaming glistening walls with pictures of the queen’s face throughout this place in which she found herself. She was happy that a woman was still in power and able to put these pawns in their place; but she found a large number of the pawns appeared to be sitting around not doing anything.
 

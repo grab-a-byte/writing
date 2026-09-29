@@ -4,15 +4,17 @@ _This week was to writing something in they style of diary entries. I thought ra
 
 ---
 
+## The Pointlessness of Progress
+
 **25/10/4065**
 
-It’s been 10 years since I started this journey; it really doesn’t feel like it. I’ve been waiting for this damn ship to land since I started and there’s been absolutely no problems at all. I really should’ve picked a different job but, too late now eh! “A new frontier” they said, “A new stance for humanity!” So far it’s all just been in and out of cryo just to eat and honestly even the food is crap. At least cryo keeps you lean and mean ready to splat whatever bugs decide to come our way. Anyway, it’ll be a little while before I'm able to write again, gotta get back into cryo but this at least keeps my mind alive. Just glad the damn nerds haven’t made us do travel logs on their systems for them to ‘analyze’; I’d give them bugger all, science ain't gonna do much where we’re going. 
+It’s been 10 years since I started this journey; it really doesn’t feel like it. I’ve been waiting for this damn ship to land since I started and there’s been absolutely no problems at all. I really should’ve picked a different job but, too late now eh! “A new frontier” they said, “A new stance for humanity!” So far it’s all just been in and out of cryo just to eat and honestly even the food is crap. At least cryo keeps you lean and mean ready to splat whatever bugs decide to come our way. Anyway, it’ll be a little while before I'm able to write again, gotta get back into cryo but this at least keeps my mind alive. Just glad the damn nerds haven’t made us do travel logs on their systems for them to ‘analyze’; I’d give them bugger all, science ain't gonna do much where we’re going.
 
 **12/01/4066**
 
-It’s been a while; everything’s sore and stiff. Just glad to be out and about again. They did their usual observation checks, and of course, everything is fine; this technology was checked and tested, and checked and tested so many damn times that they know it’s safe. Kept Bezos alive and that’s why we’re stuck here now. Why couldn’t the damn prick just accept he was gonna die without being in space and live like the rest of us. 
+It’s been a while; everything’s sore and stiff. Just glad to be out and about again. They did their usual observation checks, and of course, everything is fine; this technology was checked and tested, and checked and tested so many damn times that they know it’s safe. Kept Bezos alive and that’s why we’re stuck here now. Why couldn’t the damn prick just accept he was gonna die without being in space and live like the rest of us.
 
-Anyway, I’ve asked them to let me out for a bit longer, “see the sights” for what little there is, it’s all just a white blur. Next time I’m awake we should be there and hopefully we’ll see some action before or at then but I’m honestly starting to lose hope. 
+Anyway, I’ve asked them to let me out for a bit longer, “see the sights” for what little there is, it’s all just a white blur. Next time I’m awake we should be there and hopefully we’ll see some action before or at then but I’m honestly starting to lose hope.
 
 **15/02/4066**
 
@@ -24,7 +26,7 @@ I mean, at this point why even bother bringing us along. 10 years in a metal box
 
 **16/03/4066**
 
-It’s quiet. Too quiet. Hell not even a scary looking alien like Shrek in sight since we got here. Rumour has it that soon the military arm of this unit will be stood down. They’ll have us lugging boxes and all sorts for the nerds who sit at machines, looking at “data” all day. Honestly, this really has been the least valuable trip in my life. Going to Tenerife was more of an adventure than this; at least there I almost had the damn hotel fall down on me. Sod it, time for a pint methinks. 
+It’s quiet. Too quiet. Hell not even a scary looking alien like Shrek in sight since we got here. Rumour has it that soon the military arm of this unit will be stood down. They’ll have us lugging boxes and all sorts for the nerds who sit at machines, looking at “data” all day. Honestly, this really has been the least valuable trip in my life. Going to Tenerife was more of an adventure than this; at least there I almost had the damn hotel fall down on me. Sod it, time for a pint methinks.
 
 **16/03/4076**
 

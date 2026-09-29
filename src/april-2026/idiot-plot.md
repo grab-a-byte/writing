@@ -3,6 +3,7 @@
 _An idiot plot is one where the plot wouldn't happen is the characters in the story were not idiots. To steal a better explanation from Wikipedia: 'In literary criticism, an idiot plot is a fictional storyline which is "kept in motion solely by virtue of the fact that everybody involved is an idiot",: and where the story would quickly end, or possibly not even happen, if this were not the case.'._
 
 ---
+## The Day the Line Went Dead
 
 Beep. He’d hung up. Emily couldn’t believe what had just transpired before her very ears. 
 “We’re breaking up.” That’s what she had heard. The line had been a bit patchy but that’s what he’d said. She’d heard it.  Stunned in the moment, she merely stood still; phone still up to her ear. 6 years of her life she’d given to him; they’d moved in together just last year, engaged just a few months ago; all thrown away like it meant nothing. He didn’t even sound sorrowful in his voice as he’d said it. 

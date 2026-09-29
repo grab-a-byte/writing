@@ -3,6 +3,7 @@
 _The prompt for this week was simple. A story about one character making it up to another. As simple as that._
 
 ---
+## The Spell of Forgiveness
 
 As Xaldor felt the energy fall from his body to the ground, his eyelids closing. He’d hoped that maybe this meant that she’d forgive him. Maybe he’d finally done enough to make it back up to her. His eyelids closed and his cruel mind replayed the moment again.
 

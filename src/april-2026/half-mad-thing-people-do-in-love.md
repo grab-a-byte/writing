@@ -3,6 +3,7 @@
 _This prompt was to make 'A story about the half-mad things people do when they're in the early days of being in love. All that silly giddiness that gets pushed into your brain. Let's have something on that.' I took it in a slightly more darker direction just to keep things interesting._ 
 
 ---
+## Suspicion in Bloom
 
 It started just like every other relationship you may think of: a few dinner dates here, a coffee meetup there. Eventually, he built up the courage to ask her to come to his home on the weekend. The weekend came quickly, giddy with excitement, he’d decided to try something a bit creative for their meals. He stood preparing peppers that would look like roses, happily working his way through this elaborate meal. 
 
