@@ -16,6 +16,7 @@
 - [Writing course September 2026](./september-2026/overview.md)
   - [Unsung Heroes](./september-2026/unsung-heroes.md)
   - [Personality change after drinking](./september-2026/drunk-personality.md)
+  - [Internal monologue of an awkward situation](./september-2026/internal-monologue.md)
 
 All of these are in the format of
 
