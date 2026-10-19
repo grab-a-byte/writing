@@ -5,3 +5,4 @@ I continued with a local writing group / course that I decided to join to see ho
 - [Unsung Heroes](./unsung-heroes.md)
 - [Personality change after drinking](./drunk-personality.md)
 - [Internal monologue of an awkward situation](./internal-monologue.md)
+- [Cautionary Tale](./cautionary-tale.md)

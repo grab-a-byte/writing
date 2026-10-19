@@ -15,6 +15,7 @@
   - [Unsung Heroes](./september-2026/unsung-heroes.md)
   - [Personality change after drinking](./september-2026/drunk-personality.md)
   - [Internal monologue of an awkward situation](./september-2026/internal-monologue.md)
+  - [Cautionary Tale](./september-2026/cautionary-tale.md)
 
   
 All of these are in the format of
