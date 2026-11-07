@@ -1,4 +1,4 @@
-# Diary entries
+# Diary Entries
 
 _This week was to writing something in they style of diary entries. I thought rather than going to the past like most people may think, lets try a future one. I may have watched James Cameron's Avatar recently before writing this which reading it back shows a little far too heavily_
 

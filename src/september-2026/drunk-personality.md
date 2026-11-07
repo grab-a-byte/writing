@@ -1,4 +1,4 @@
-# Changed personality after drinking
+# Changed Personality After Drinking
 
 _This week was about a person whose personality changes while drinking. I decided instead to focus on the idea of somebody who changes very drastically after drinking and in a more permanent manner._
 

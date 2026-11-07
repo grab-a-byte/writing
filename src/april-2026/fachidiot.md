@@ -1,4 +1,4 @@
-# Fachidiot
+# Machinist
 
 _Fachidiot is a derogatory German term for an expert who is highly skilled in their specific field but completely ignorant, oblivious, or lacking in common sense outside their narrow specialty. It describes someone with a "blinkered" view of multi-faceted problems who cannot see the bigger picture._
 

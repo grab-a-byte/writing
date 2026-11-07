@@ -1,4 +1,4 @@
-# Internal monologue of a character in an awkward situation
+# Internal Monologue of a Character in an Awkward Situation
 
 _I think the title is self explanatory for this week. I chose to use the story of mistaken identity after my wife reminded me of a hilarious situation; the situation of Guy Goma on the BBC. While I have used the real story and some of the real names also, please be aware that this is fiction and just my own writing for fun. If there are any issues, please feel free to reach out._
 
