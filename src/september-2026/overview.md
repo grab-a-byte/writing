@@ -7,3 +7,4 @@ I continued with a local writing group / course that I decided to join to see ho
 - [Internal monologue of an awkward situation](./internal-monologue.md)
 - [Cautionary Tale](./cautionary-tale.md)
 - [Job Loss](./job-loss.md)
+- [Bad News Dialog](./bad-news-dialog.md)

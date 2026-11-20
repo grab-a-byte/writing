@@ -19,6 +19,7 @@
   - [Internal monologue of an awkward situation](./september-2026/internal-monologue.md)
   - [Cautionary Tale](./september-2026/cautionary-tale.md)
   - [Job Loss](./september-2026/job-loss.md)
+  - [Bad News Dialog](./september-2026/bad-news-dialog.md)
 
 All of these are in the format of
 
