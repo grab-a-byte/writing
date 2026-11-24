@@ -18,6 +18,7 @@
   - [Cautionary Tale](./september-2026/cautionary-tale.md)
   - [Job Loss](./september-2026/job-loss.md)
   - [Bad News Dialog](./september-2026/bad-news-dialog.md)
+  - [Battling with Conscience](./september-2026/battling-with-conscience.md)
 
 
 All of these are in the format of

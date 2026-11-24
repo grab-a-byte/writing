@@ -8,3 +8,4 @@ I continued with a local writing group / course that I decided to join to see ho
 - [Cautionary Tale](./cautionary-tale.md)
 - [Job Loss](./job-loss.md)
 - [Bad News Dialog](./bad-news-dialog.md)
+- [Battling with Conscience](./battling-with-conscience.md)
